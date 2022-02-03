@@ -1,3 +1,0 @@
-# Vertila
-# Vertila
-# Vertila
